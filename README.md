@@ -1,0 +1,2 @@
+# Malumot
+Oʻzimman
